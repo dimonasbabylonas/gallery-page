@@ -1,1 +1,0 @@
-Artrwork Gallery Page
